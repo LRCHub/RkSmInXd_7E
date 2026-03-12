@@ -1,0 +1,44 @@
+# れをる – Echo
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+You know me? My soul?
+I do too well
+Cause you will,
+your soul saw you, I need a lee
+I don't care why leave me,
+you guess all
+That you will dis-create
+my mind, why don't you...?
+I can still remind me why
+I don't want honestly
+to rescind my dream
+Listen that I’ve been mine
+like every truth
+Don’t drop tears or lie,
+I don’t need to remind
+Don’t rescue me while I do sink
+And there is new luck
+be with you
+You know me? My soul?
+I do too well
+Cause you will,
+your soul saw you, I need a lee
+Who are you, oh you, oh you,
+oh you are designed
+for what you did
+You can be jeering really
+morally redacted,
+no reason, ooh
+I can still remind me why
+I don’t want honestly
+to listen my dream
+Listen that
+I’ve behind every truth
+Don’t drop tears or lie,
+I don’t need to remind
+Don’t rescue me while I do sink
+And there’ll be new luck
+be with you
+```
